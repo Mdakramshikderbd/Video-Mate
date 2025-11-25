@@ -1,4 +1,5 @@
 📄 Privacy Policy for Video Mate
+
 Last Updated: November 25, 2025
 
 1. Introduction
